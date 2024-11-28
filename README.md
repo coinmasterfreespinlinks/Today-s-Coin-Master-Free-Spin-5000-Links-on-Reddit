@@ -2,6 +2,8 @@
 
 In the bustling world of mobile gaming, **Coin Master** stands out as a beloved title that combines elements of slot machines, village building, and social engagement. One of the most sought-after resources in the game is free spins, which can significantly enhance your gameplay experience. In this article, we will explore the **Coin Master Free 5000 Spin Link**, providing you with insights, tips, and the latest links shared on Reddit to maximize your gameplay. 
 
+👉👉https://todaylink.site/codes/
+
 ## Table of Contents
 1. [Understanding Coin Master](#understanding-coin-master)
 2. [What are Free Spins?](#what-are-free-spins)
